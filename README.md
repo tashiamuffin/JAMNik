@@ -1,0 +1,2 @@
+# JAMNik
+Ryzyko pizzy
